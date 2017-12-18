@@ -13,8 +13,8 @@ so, japanese has more than one word for the concept of "circular".
 
 more interesting circular facts...
 
-丸いねこ: fluffy or fat cat. very useful.
-丸おしり: round ass. also very useful.
+**丸いねこ**: fluffy or fat cat. very useful.
+**丸おしり**: round ass. also very useful.
 
 面白いね？
 
