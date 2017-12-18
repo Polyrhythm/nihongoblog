@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+move along
 
-### More Information
+### oh my god what is this
 
-A place to include any other types of information that you'd like to include about yourself. 
+it's a place to store my progress learning japanese while living in japan. maybe i'll post other stuff occasionally, but, like, no promises, man
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[polyrhythm@gmail.com](mailto:polyrhythm@gmail.com)
