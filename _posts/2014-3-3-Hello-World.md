@@ -15,8 +15,8 @@ more interesting circular facts...
 
 **丸いねこ**: fluffy or fat cat. very useful.
 
-**丸おしり**: round ass. also very useful.
+**丸いおしり**: round ass. also very useful.
 
 面白いね？
 
-明日は、これをしようとします。　ばんばります。
+明日は、これをしようとします。　がんばります。
